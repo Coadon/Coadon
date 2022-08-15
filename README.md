@@ -2,9 +2,14 @@
 
 <br>
 
-You clicked on my profile, good job!
+You clicked on my profile. Good job.
 
 <br>
+
+- Amateur software engineer
+
+- Middle school
+
 <br>
 
 <div align="center">
