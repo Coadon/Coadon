@@ -2,14 +2,9 @@
 
 <br>
 
-So you clicked on my profile eh?
+You clicked on my profile, good job!
 
 <br>
-
-- 🔭 Fiddling with computers is my hobby.
-
-- 🌱 I’m currently learning Unity and some other things.
-
 <br>
 
 <div align="center">
