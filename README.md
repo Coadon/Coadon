@@ -8,5 +8,6 @@
 
 Contacts. Please, don't hesitate, just e-mail me.
 * Therapy Email (don't bomb me): `huang129703@gapps.uwcsea.edu.sg`
+* Github stargazing maniac (needs to stop).
 
 <img alt="Cool stuffs" src="cool_stuff.svg">
