@@ -7,7 +7,7 @@
 >     or move their marble feet
 
 * Random therapy
-* Procrastination
+* Procrastination: I'm either counter-productive or sleeping.
 * Stargazing maniac (needs to stop)
 
 Yes.
