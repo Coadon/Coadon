@@ -6,5 +6,5 @@
  
      Or move their marble feet.
 
-* Procrastinates very often.
+* Either sleeping or procrastinating
 * Stargazing maniac (yes, needs to stop.)
