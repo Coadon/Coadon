@@ -1,10 +1,10 @@
-     The animated figures stand,
+     The animated figures stand
  
-     Adorning every public street.
+     Adorning every public street
  
-     And seem to breathe in stone,
+     And seem to breathe in stone
  
-     Or move their marble feet.
+     Or move their marble feet
 
 * Either sleeping or procrastinating
 * Stargazing maniac (yes, needs to stop.)
